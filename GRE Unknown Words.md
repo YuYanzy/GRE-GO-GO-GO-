@@ -1,0 +1,129 @@
+1. cosmopolitan 世界性的,国际的
+2. insular 与世隔绝的
+3. carpricious 善变的 fickle 善变的
+4. mercenary 唯利是图的
+5. intransigent 固执的
+6. clamorous 吵闹的
+7. invidious 诽谤的
+8. empirical 基于实证的
+9. sonorous 洪亮的
+10. unambiguous 明确的
+11. sterling 纯正的，含标准成分的，品格优秀的，货币
+12. exhaustive 全面的
+13. ad hoc 临时的
+14. superficial 表面上的，肤浅的
+15. neuralized 中和
+16. auction 拍卖
+17. exclusive 排外的
+18. antiquarian 古文物的
+19. overreact to 反应过激
+20. deviate from 偏离
+21. recoil from 畏缩 shrink from 畏缩
+22. yield to 屈服 succumb to 屈服
+23. archaic  古老的
+24. counterfeit 伪造的
+25. valuable 有价值的
+26. fake 伪造的
+27. pessimism 悲观
+28. misinterpretation 误解
+29. imprecision 不准确
+30. vagueness 模糊
+31. exaggeration 夸张 hyperbole 夸张
+32. stern 严厉的
+33. prescient 有先见之明
+34. prophetic 预见的
+35. apathetic 冷漠的
+36. impenetrable 不能渗透的，不能理解的
+37. immutable 不变的
+38. didactic 说教的
+39. self-perpetuating 自续的
+40. proprietary 所有者的
+41. lopisided 不均衡的
+42. feeble 虚弱的
+43. unimpeded 不受阻的
+44. repertoire 全部节目
+45. ameliorate 调整
+46. anticipate 期望
+47. honorific 尊敬的
+48. malign 诽谤
+49. disclose 揭露
+50. repudiate 否决
+51. brook 容忍
+52. weigh 权衡
+53. beneficence 善行
+54. altruism 利他主义
+55. fecundity 肥沃 fertility 肥沃
+56. verisimilitude 真实
+57. sanguinty 乐观
+58. cordiality 热诚
+59. disorganization 混乱
+60. conviviality 欢乐
+61. diffidence 不自信
+62. irascibility 易怒 exasperation 恼怒
+63. decry 责难
+64. condone 原谅
+65. remedy 补救
+66. boast 吹嘘
+67. downplay 轻描淡写
+68. loath 不愿意的
+69. ambivalence 矛盾
+70. censure 谴责
+71. sifted from 从……中筛选
+72. zealot 狂热者
+73. neophyte 新手 novice 新手
+74. pragmatist 实用主义者
+75. intricate 复杂的 convoluted 错综复杂的
+76. unwarranted 不合理的
+77. illuminating 有启发的
+78. haphazard 偶然的
+79. decisive 果断的
+80. vacillation 犹豫
+81. compassionate 同情心的
+82. nepotistic 任人唯亲的
+83. grandstanding 哗众取宠的
+84. partisanship 有偏见的
+85. inattentive 疏忽的
+86. futile 无用的
+87. contagious 有感染力的
+88. fippancy 轻率
+89. tendentousness 有偏见
+90. discursions 散漫离题
+91. irk 使恼怒，使厌倦
+92. prose 散文，乏味的
+93. asset  资产，有用的东西，有利条件，优点
+94. stigma 耻辱
+95. blemish 瑕疵
+96. inverterate 根深蒂固的
+97. paradigm 范例
+98. hodgepodge 混合物
+99. patchwork 拼凑之物
+100. sagacious 睿智的
+101. intriguing 迷人的
+102. heterpgeneous 各种各样的
+103. disparate 不同的
+104. mediocre 平庸的
+105. enigmatic 神秘的
+106. disingenuous 不真诚的
+107. orthodox 正统的
+108. impetuous 鲁莽的
+109. chivalrous 彬彬有礼的
+110. circumspect 谨慎的
+111. boorish 粗野的，土气的
+112. jettison 抛弃
+113. contrive 设计，谋划
+114. dichotomous 有矛盾的,分成两个的
+115. untenable 不堪一击的
+116. unsustainable 不能成立的
+117. subversive 颠覆性的，破坏性的
+118. efficacious 有效的
+119. minimal 最小的 trifling 微不足道的 trivial 微不足道的
+120. conspicuous 显眼的
+121. deleterious 有害的
+122. inconsequential 不重要的
+123. precarious 依靠机会的，不确定的，不安全的
+124. 
+
+
+
+
+
