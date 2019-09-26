@@ -121,7 +121,73 @@
 121. deleterious 有害的
 122. inconsequential 不重要的
 123. precarious 依靠机会的，不确定的，不安全的
-124. 
+124. incommmensurable  不可比较的
+125. discriminatory 区别对待，有辨识能力的，无偏的
+126. anachronistic 时代错误的
+127. innocuous 无害的
+128. acrimony 尖酸刻薄 mordancy 尖酸
+129. dissension 纠纷，意见不和
+130. comity 友谊
+131. conformity 一致
+132. evade 逃避
+133. oust 驱赶
+134. endorse 背书，认可，赞同
+135. sanction 制裁，处罚，认可，激励
+136. condemn 谴责
+137. belie 掩盖 mask 掩盖
+138. nullify 使无效
+139. obviate 排除
+140. accentuate 强调，重读
+141. rebellious 反抗者
+142. quirky 古怪的，奇怪的
+143. flamboyant 华丽的
+144. lucrative 获利多的
+145. undue 过度的，过分的，未到期的
+146. scant 不足的，缺乏的，减少
+147. excessive 过多的
+148. dwindling 减少，退化
+149. felicitous  恰当的，善于措辞的，幸福的
+150. prolific 多产的，丰富的
+151. abbreviated 简短的
+152. outstrip 超过
+153. eclipse 遮住……的光，黯然失色
+154. marveled 对……感到惊讶
+155. meticulouseness 谨小慎微
+156. edifying 教诲，开导，启迪的
+157. nothing if not = very
+158. precipitate 鲁莽的，仓促的
+159. tactful 机智的，圆滑的，老练的
+160. discreet 谨慎的，小心的
+161. declare 宣称
+162. unfounded 未建立的，没有理由的，没有事实根据的
+163. premature 早产的，不成熟的，比预期早的
+164. diffuse 扩散，传播
+165. dampen 抑制
+166. deaden 使减弱
+167. cliche 陈词滥调
+168. insulting 侮辱
+169. condescending 表现出优越的，居高临下的
+170. issue 问题，期刊，发行物；发布；发行
+171. onerous 繁重的，负有责任的，有法律义务的
+172. opaque 不透明的，使不透明
+173. magisterial 权威的，专横的，官吏的
+174. interdependence 互相依赖
+175. draconian 严厉的，严格的
+176. rapacious 贪婪地
+177. adjunct 附属
+178. maladies 疾病
+179. assuage 平息，缓和
+180. intangibles 无形资产
+181. legislator 立法者
+182. proclaimed 宣称
+183. professed 声称
+184. antediluvian 大洪水以前的， 过时的
+185. archaic 过时的
+186. flighty 轻浮的
+187. chauvinistic 沙文主义的，盲目爱国的
+188. capricious 反复无常的
+189. patronizing 自认为高人一等的
+190. 
 
 
 
